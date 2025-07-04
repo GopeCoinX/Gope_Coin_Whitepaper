@@ -50,12 +50,12 @@ Our journey is planned in phases to ensure sustained growth and community engage
 Connect with us across all platforms to stay updated, participate in events, and be part of the most powerful meme coin community!
 
 * **Website:** [Your Website Link]
-* **Telegram:** [Your Telegram Group Link]
-* **X (Twitter):** [Your X/Twitter Profile Link]
-* **TikTok:** [Your TikTok Profile Link]
-* **Instagram:** [Your Instagram Profile Link]
-* **Facebook:** [Your Facebook Page/Group Link]
-* **YouTube:** [Your YouTube Channel Link]
+* **Telegram:** [https://t.me/GopeCoinX]
+* **X (Twitter):** [https://x.com/GopeCoinX?t=gj3T8y6CayzEreBXdXDNuA&s=09]
+* **TikTok:** [https://www.tiktok.com/@gopecoinx?_t=ZN-8xhwgpy8UfG&_r=1]
+* **Instagram:** [https://www.instagram.com/gopecoinx?igsh=aWNzYmQzcmQwZ2lr]
+* **Facebook:** [https://www.facebook.com/share/1HMzjeCfvv/]
+* **YouTube:** [https://youtube.com/@gopecoinx?si=hLi8DQ9Xk35cWWMW]
 
 ---
 
